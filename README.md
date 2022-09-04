@@ -12,3 +12,9 @@ By considering the mental health of old people they need some entertainment, So 
 based videos like youtube videos. which will make there mood fresh and keep them happy.
 
 ![image](https://user-images.githubusercontent.com/91820120/188308653-3fdc0331-0f36-44ed-a917-8588071ad154.png)
+
+
+![image](https://user-images.githubusercontent.com/91820120/188308688-eb2dfc19-0337-4922-a9fa-8e393ba3e7e6.png)
+
+
+![image](https://user-images.githubusercontent.com/91820120/188308704-c982a7a9-a3bf-4e8f-a20e-882da1fccc7f.png)
